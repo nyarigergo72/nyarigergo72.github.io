@@ -1,0 +1,1 @@
+# nyarigergo72.github.io
